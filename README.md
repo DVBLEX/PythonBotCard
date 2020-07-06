@@ -1,1 +1,1 @@
-The Best in the world for work.
+The best in the world at work
